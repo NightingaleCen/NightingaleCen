@@ -73,7 +73,7 @@
     <br/>a hopeless case if —- listen: there's a hell
     <br/>of a good universe next door; let's go
   </p>
-  <a href="https://en.wikipedia.org/wiki/Common_nightingale#Cultural_connotations">
+  <a href="nightingalecen@outlook.com">
     nightingalecen[at]outlook[dot]com
   </a>
 </div>
